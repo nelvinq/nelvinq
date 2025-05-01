@@ -9,7 +9,9 @@ I'm a **Product Manager** who loves turning complex problems into clear, user-fo
 
 ### 💡 Interests
 - 💪 Fitness and wellnes (gym, running, swimming, and more)
-- ✍️ Creative writing (narratives, worldbuilding, and more)
+- ✍️ Creative writing (narratives, worldbuilding, and characters)
+- 🍸 Mixology (crafting the perfect drink is an art)
+- ✈️ Travel (new cultures, new perspectives)
 - 📱 Mobile games (especially ones with clever mechanics and great UX)
 - 💻 Learning to code (currently leveling up my dev skills!)
 
