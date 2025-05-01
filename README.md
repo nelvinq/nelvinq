@@ -8,7 +8,7 @@ I'm a **Product Manager** who loves turning complex problems into clear, user-fo
 - Explore code to stay hands-on and better understand my tech partners.
 
 ### 💡 Interests
-- 💪 Fitness and wellnes (gym, running, swimming, and more)
+- 💪 Fitness and wellness (gym, running, swimming, and more)
 - ✍️ Creative writing (narratives, worldbuilding, and characters)
 - 🍸 Mixology (crafting the perfect drink is an art)
 - ✈️ Travel (new cultures, new perspectives)
